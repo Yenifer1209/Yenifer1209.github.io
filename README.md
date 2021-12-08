@@ -13,3 +13,4 @@
 
 ### 课程：计算机导论
 
+![24](https://user-images.githubusercontent.com/91597121/145182565-5840e79c-af38-4ff5-a331-7ce01b4d8c52.jpg)
